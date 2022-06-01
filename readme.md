@@ -1,0 +1,1 @@
+Hello, my name is Nitya Parikh.I am pursuing B.Tech in Computer Science Engineering from IIT Guwahati.My roll no. is 210101073.I like travelling,playing and watching sports and also learning new things.
